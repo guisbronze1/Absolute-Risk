@@ -216,4 +216,4 @@ Absolute Risk is available as a full free version with all features and updates 
 Get ready to strategize and conquer! Download Absolute Risk now and embark on your journey to world domination!
 
 ---
-**Last updated:** 2026-09-20 22:11:59 UTC
+**Last updated:** 2026-09-21 00:39:09 UTC
